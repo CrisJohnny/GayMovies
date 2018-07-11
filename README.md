@@ -4,6 +4,7 @@
 + [不可抗力之男仆的秘密](https://www.fantasy.tv/video/list/channel/1986535/0/1220191)
 + [无色彩虹](https://www.fantasy.tv/video/list/channel/1986572/0/1220191)
 + [霰雪](https://www.fantasy.tv/video/list/channel/1986594/0/1220191)
++ [哥](https://www.fantasy.tv/video/list/channel/1986598/0/1220191)
 
 ## 亚洲
 
@@ -76,6 +77,7 @@
 + [嫉妒做客](https://www.fantasy.tv/video/list/channel/1980684/0/1220191)
 + [两个婚礼一个葬礼](https://www.fantasy.tv/video/list/channel/1983628/0/1220191)
 + [换季期](https://www.fantasy.tv/video/list/channel/1983866/0/1220191)
++ [哥](https://www.fantasy.tv/video/list/channel/1986598/0/1220191)
 + [好久不见](https://www.fantasy.tv/list/channel/22788/1220191)  
 [01](https://www.fantasy.tv/video/list/channel/1982353/0/1220191) [02](https://www.fantasy.tv/video/list/channel/1982356/0/1220191) [03](https://www.fantasy.tv/video/list/channel/1982358/0/1220191) [04](https://www.fantasy.tv/video/list/channel/1982359/0/1220191) [05](https://www.fantasy.tv/video/list/channel/1982361/0/1220191)
 
