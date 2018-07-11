@@ -1,3 +1,10 @@
+## 更新
+
+### 2018/7/11
++ [不可抗力之男仆的秘密](https://www.fantasy.tv/video/list/channel/1986535/0/1220191)
++ [无色彩虹](https://www.fantasy.tv/video/list/channel/1986572/0/1220191)
++ [霰雪](https://www.fantasy.tv/video/list/channel/1986594/0/1220191)
+
 ## 亚洲
 
 ### 大陆
@@ -12,6 +19,7 @@
 + [何故惹凡尘](https://www.fantasy.tv/video/list/channel/1983197/0/1220191)
 + [梦回少年时](https://www.fantasy.tv/video/list/channel/1983227/0/1220191)
 + [花为眉](https://www.fantasy.tv/video/list/channel/1983885/0/1220191)
++ [不可抗力之男仆的秘密](https://www.fantasy.tv/video/list/channel/1986535/0/1220191)
 + [盛势](https://www.fantasy.tv/list/channel/22848/1220191)  
 [01](https://www.fantasy.tv/video/list/channel/1983089/0/1220191) [02](https://www.fantasy.tv/video/list/channel/1983080/0/1220191) [03](https://www.fantasy.tv/video/list/channel/1983083/0/1220191) [04](https://www.fantasy.tv/video/list/channel/1983085/0/1220191) [05](https://www.fantasy.tv/video/list/channel/1983086/0/1220191) [06](https://www.fantasy.tv/video/list/channel/1983087/0/1220191) [07](https://www.fantasy.tv/video/list/channel/1983088/0/1220191) [08](https://www.fantasy.tv/video/list/channel/1983090/0/1220191) [09](https://www.fantasy.tv/video/list/channel/1983092/0/1220191) [10](https://www.fantasy.tv/video/list/channel/1983094/0/1220191) [11](https://www.fantasy.tv/video/list/channel/1983095/0/1220191) [12](https://www.fantasy.tv/video/list/channel/1983097/0/1220191) [13](https://www.fantasy.tv/video/list/channel/1983099/0/1220191) [14](https://www.fantasy.tv/video/list/channel/1983100/0/1220191) [15](https://www.fantasy.tv/video/list/channel/1983102/0/1220191) [16](https://www.fantasy.tv/video/list/channel/1983105/0/1220191) [17](https://www.fantasy.tv/video/list/channel/1983106/0/1220191) [18](https://www.fantasy.tv/video/list/channel/1983108/0/1220191) [19](https://www.fantasy.tv/video/list/channel/1983109/0/1220191) [20](https://www.fantasy.tv/video/list/channel/1983110/0/1220191) [21](https://www.fantasy.tv/video/list/channel/1983111/0/1220191) [22](https://www.fantasy.tv/video/list/channel/1983132/0/1220191) [23](https://www.fantasy.tv/video/list/channel/1983121/0/1220191) [24](https://www.fantasy.tv/video/list/channel/1983124/0/1220191) [25](https://www.fantasy.tv/video/list/channel/1983125/0/1220191) [26](https://www.fantasy.tv/video/list/channel/1983126/0/1220191) [27](https://www.fantasy.tv/video/list/channel/1983128/0/1220191) [28](https://www.fantasy.tv/video/list/channel/1983129/0/1220191) [29](https://www.fantasy.tv/video/list/channel/1983130/0/1220191) [30](https://www.fantasy.tv/video/list/channel/1983131/0/1220191)
 + [上瘾](https://www.fantasy.tv/list/channel/22855/1220191)  
@@ -46,6 +54,7 @@
 
 + [春光乍泄](https://www.fantasy.tv/video/list/channel/1930516/0/1220191)
 + [爱到尽](https://www.fantasy.tv/video/list/channel/1982615/0/1220191)
++ [霰雪](https://www.fantasy.tv/video/list/channel/1986594/0/1220191)
 
 ### 日本
 
@@ -72,6 +81,7 @@
 
 ### 越南
 
++ [无色彩虹](https://www.fantasy.tv/video/list/channel/1986572/0/1220191)
 + [亚当的秘密](https://www.fantasy.tv/list/channel/21677/1220191)  
 [01](https://www.fantasy.tv/video/list/channel/1960261/0/1220191) [02](https://www.fantasy.tv/video/list/channel/1960281/0/1220191) [03](https://www.fantasy.tv/video/list/channel/1960289/0/1220191) [04](https://www.fantasy.tv/video/list/channel/1960205/0/1220191) [05](https://www.fantasy.tv/video/list/channel/1960246/0/1220191) [06](https://www.fantasy.tv/video/list/channel/1960257/0/1220191)
 
