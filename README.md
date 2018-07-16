@@ -1,7 +1,23 @@
 ## 更新
 
+### 2018/7/16
++ [一分五十四秒](https://www.fantasy.tv/video/list/channel/1995009/0/1220191)
++ [战场上的快乐圣诞](https://www.fantasy.tv/video/list/channel/1994162/0/1220191)
++ [索多玛的猫](https://www.fantasy.tv/video/list/channel/1994183/0/1220191)
++ [上瘾](https://www.fantasy.tv/video/list/channel/1994574/0/1220191)
++ [男情难了](https://www.fantasy.tv/video/list/channel/1994620/0/1220191)
++ [超感八人组](https://www.fantasy.tv/video/list/channel/1994146/0/1220191)
++ [错生]()  
+[01](https://www.fantasy.tv/video/list/channel/1992903/0/1220191) [02](https://www.fantasy.tv/video/list/channel/1992907/0/1220191) [03](https://www.fantasy.tv/video/list/channel/1992911/0/1220191) [04](https://www.fantasy.tv/video/list/channel/1993022/0/1220191) [05](https://www.fantasy.tv/video/list/channel/1994522/0/1220191) [06](https://www.fantasy.tv/video/list/channel/1992923/0/1220191) [07](https://www.fantasy.tv/video/list/channel/1992939/0/1220191) [08](https://www.fantasy.tv/video/list/channel/1994427/0/1220191) [09](https://www.fantasy.tv/video/list/channel/1994538/0/1220191) [10](https://www.fantasy.tv/video/list/channel/1994494/0/1220191) 
++ [魔道祖师]()  
+[01](https://www.fantasy.tv/video/list/channel/1994178/0/1220191) [02](https://www.fantasy.tv/video/list/channel/1994181/0/1220191)
++ [天堂执法者 第六季]()  
+[01](https://www.fantasy.tv/video/list/channel/1994643/0/1220191) [02](https://www.fantasy.tv/video/list/channel/1994653/0/1220191) [03](https://www.fantasy.tv/video/list/channel/1994664/0/1220191) [04](https://www.fantasy.tv/video/list/channel/1994683/0/1220191) [05](https://www.fantasy.tv/video/list/channel/1994698/0/1220191) [06](https://www.fantasy.tv/video/list/channel/1994725/0/1220191) [07](https://www.fantasy.tv/video/list/channel/1994737/0/1220191) [08](https://www.fantasy.tv/video/list/channel/1994744/0/1220191) [09](https://www.fantasy.tv/video/list/channel/1994760/0/1220191) [10](https://www.fantasy.tv/video/list/channel/1994713/0/1220191) [11](https://www.fantasy.tv/video/list/channel/1994814/0/1220191) [12](https://www.fantasy.tv/video/list/channel/1994827/0/1220191) [13](https://www.fantasy.tv/video/list/channel/1994834/0/1220191) [14](https://www.fantasy.tv/video/list/channel/1994845/0/1220191) [15](https://www.fantasy.tv/video/list/channel/1994878/0/1220191) [16](https://www.fantasy.tv/video/list/channel/1994912/0/1220191) [17](https://www.fantasy.tv/video/list/channel/1994936/0/1220191) [18](https://www.fantasy.tv/video/list/channel/1994947/0/1220191) [19](https://www.fantasy.tv/video/list/channel/1994960/0/1220191) [20](https://www.fantasy.tv/video/list/channel/1994973/0/1220191) [21](https://www.fantasy.tv/video/list/channel/1994984/0/1220191) [22](https://www.fantasy.tv/video/list/channel/1994988/0/1220191) [23](https://www.fantasy.tv/video/list/channel/1995020/0/1220191) [24](https://www.fantasy.tv/video/list/channel/1995023/0/1220191) [25](https://www.fantasy.tv/video/list/channel/1995025/0/1220191) 
++ [天堂执法者 第八季]()  
+[15](https://www.fantasy.tv/video/list/channel/1995028/0/1220191) [16](https://www.fantasy.tv/video/list/channel/1995030/0/1220191) [17](https://www.fantasy.tv/video/list/channel/1995033/0/1220191) [18]() [19]() [20](https://www.fantasy.tv/video/list/channel/1995038/0/1220191) [21](https://www.fantasy.tv/video/list/channel/1995041/0/1220191) [22]() [23](https://www.fantasy.tv/video/list/channel/1995044/0/1220191) [24]() [25](https://www.fantasy.tv/video/list/channel/1995049/0/1220191) 
+
 ### 2018/7/15
-+ [舞动奇迹]()  
++ [舞动奇迹]()   
 [01](https://www.fantasy.tv/video/list/channel/1991688/0/1220191) [02](https://www.fantasy.tv/video/list/channel/1990364/0/1220191) [03](https://www.fantasy.tv/video/list/channel/1990381/0/1220191) [04](https://www.fantasy.tv/video/list/channel/1990392/0/1220191) [05](https://www.fantasy.tv/video/list/channel/1992286/0/1220191) [06](https://www.fantasy.tv/video/list/channel/1992835/0/1220191) [07](https://www.fantasy.tv/video/list/channel/1992869/0/1220191) [08](https://www.fantasy.tv/video/list/channel/1991516/0/1220191) [09](https://www.fantasy.tv/video/list/channel/1991558/0/1220191) [10](https://www.fantasy.tv/video/list/channel/1991592/0/1220191) [11](https://www.fantasy.tv/video/list/channel/1991626/0/1220191) [12](https://www.fantasy.tv/video/list/channel/1991652/0/1220191) [13](https://www.fantasy.tv/video/list/channel/1991677/0/1220191)
 
 ### 2018/7/14
