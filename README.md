@@ -1,5 +1,17 @@
 ## 更新
 
+### 2018/7/17
++ [基哥们](https://www.fantasy.tv/video/list/channel/1995220/0/1220191)
++ [避风港湾](https://www.fantasy.tv/video/list/channel/1995204/0/1220191)
++ [爱你,西蒙](https://www.fantasy.tv/video/list/channel/1995238/0/1220191)
++ [爱很怪](https://www.fantasy.tv/video/list/channel/1995287/0/1220191)
++ [轻轻摇晃](https://www.fantasy.tv/video/list/channel/1995302/0/1220191)
++ [无夜不漫长](https://www.fantasy.tv/video/list/channel/1995316/0/1220191)
++ [乌托邦](https://www.fantasy.tv/video/list/channel/1995345/0/1220191)
++ [林荫大道](https://www.fantasy.tv/video/list/channel/1995394/0/1220191)
++ [四角关系](https://www.fantasy.tv/video/list/channel/1995422/0/1220191)
++ [蝴蝶：成人的世界](https://www.fantasy.tv/video/list/channel/1995454/0/1220191)
+
 ### 2018/7/16
 + [一分五十四秒](https://www.fantasy.tv/video/list/channel/1995009/0/1220191)
 + [战场上的快乐圣诞](https://www.fantasy.tv/video/list/channel/1994162/0/1220191)
