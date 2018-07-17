@@ -1,6 +1,12 @@
 ## 更新
 
 ### 2018/7/17
++ [利普曼](https://www.fantasy.tv/video/list/channel/1995594/0/1220191)
++ [无秩序青春](https://www.fantasy.tv/video/list/channel/1995617/0/1220191)
++ [我，迈克尔](https://www.fantasy.tv/video/list/channel/1995650/0/1220191)
++ [时光驻留](https://www.fantasy.tv/video/list/channel/1995689/0/1220191)
++ [单身男子](https://www.fantasy.tv/video/list/channel/1995707/0/1220191)
++ [渺渺](https://www.fantasy.tv/video/list/channel/1995757/0/1220191)
 + [基哥们](https://www.fantasy.tv/video/list/channel/1995220/0/1220191)
 + [避风港湾](https://www.fantasy.tv/video/list/channel/1995204/0/1220191)
 + [爱你,西蒙](https://www.fantasy.tv/video/list/channel/1995238/0/1220191)
