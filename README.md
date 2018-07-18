@@ -1,5 +1,21 @@
 ## 更新
 
+### 2018/7/18
+
++ [口红](https://www.fantasy.tv/video/list/channel/1996817/0/1220191)
++ [天堂执法者 第八季 23](https://www.fantasy.tv/video/list/channel/1996865/0/1220191)
++ [天堂执法者 第八季 25](https://www.fantasy.tv/video/list/channel/1996886/0/1220191)
++ [罗尼和我](https://www.fantasy.tv/video/list/channel/1996747/0/1220191)
++ [疾走马丁](https://www.fantasy.tv/video/list/channel/1996753/0/1220191)
++ [伤口](https://www.fantasy.tv/video/list/channel/1996776/0/1220191)
++ [野蛮地区](https://www.fantasy.tv/video/list/channel/1996793/0/1220191)
++ [只是兄弟](https://www.fantasy.tv/video/list/channel/1996607/0/1220191)
++ [梦之船](https://www.fantasy.tv/video/list/channel/1996511/0/1220191)
++ [星期恋人](https://www.fantasy.tv/video/list/channel/1996408/0/1220191)
++ [迅猛龙](https://www.fantasy.tv/video/list/channel/1996416/0/1220191)
++ [生日礼](https://www.fantasy.tv/video/list/channel/1996155/0/1220191)
++ [住在家里的杰夫](https://www.fantasy.tv/video/list/channel/1996436/0/1220191)
+
 ### 2018/7/17
 + [利普曼](https://www.fantasy.tv/video/list/channel/1995594/0/1220191)
 + [无秩序青春](https://www.fantasy.tv/video/list/channel/1995617/0/1220191)
