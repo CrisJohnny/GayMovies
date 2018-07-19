@@ -1,5 +1,23 @@
 ## 更新
 
+### 2018/7/19
++ [然后呢? 告诉我](https://www.fantasy.tv/video/list/channel/1997907/0/1220191)
++ [坠落.爱的誓约](https://www.fantasy.tv/video/list/channel/1997918/0/1220191)
++ [干柴烈火](https://www.fantasy.tv/video/list/channel/1997957/0/1220191)
++ [生命中不能承受之情](https://www.fantasy.tv/video/list/channel/1997981/0/1220191)
++ [军官与男孩](https://www.fantasy.tv/video/list/channel/1997995/0/1220191)
++ [当我们17岁](https://www.fantasy.tv/video/list/channel/1997999/0/1220191)
++ [诱惑假期](https://www.fantasy.tv/video/list/channel/1998066/0/1220191)
++ [20岁的微热](https://www.fantasy.tv/video/list/channel/1998109/0/1220191)
++ [坏宝贝](https://www.fantasy.tv/video/list/channel/1998143/0/1220191)
++ [雌雄莫辨](https://www.fantasy.tv/video/list/channel/1998185/0/1220191)
++ [二次旅程](https://www.fantasy.tv/video/list/channel/1998220/0/1220191)
++ [别叫我儿子](https://www.fantasy.tv/video/list/channel/1998241/0/1220191)
++ [镇魂]()  
+[34](https://www.fantasy.tv/video/list/channel/1997790/0/1220191) [35](https://www.fantasy.tv/video/list/channel/1997785/0/1220191) [36](https://www.fantasy.tv/video/list/channel/1997783/0/1220191)
++ [灵契 第一部]()  
+[01](https://www.fantasy.tv/video/list/channel/1997792/0/1220191) [02](https://www.fantasy.tv/video/list/channel/1997814/0/1220191) [03](https://www.fantasy.tv/video/list/channel/1997819/0/1220191) [04](https://www.fantasy.tv/video/list/channel/1997822/0/1220191) [05](https://www.fantasy.tv/video/list/channel/1997824/0/1220191) [06](https://www.fantasy.tv/video/list/channel/1997827/0/1220191) [07](https://www.fantasy.tv/video/list/channel/1997829/0/1220191) [08](https://www.fantasy.tv/video/list/channel/1997834/0/1220191) [09](https://www.fantasy.tv/video/list/channel/1997837/0/1220191) [10](https://www.fantasy.tv/video/list/channel/1997839/0/1220191) [11](https://www.fantasy.tv/video/list/channel/1997843/0/1220191) [12](https://www.fantasy.tv/video/list/channel/1997847/0/1220191) [13](https://www.fantasy.tv/video/list/channel/1997855/0/1220191) [14](https://www.fantasy.tv/video/list/channel/1997858/0/1220191) [15](https://www.fantasy.tv/video/list/channel/1997863/0/1220191) [16](https://www.fantasy.tv/video/list/channel/1997867/0/1220191) [17](https://www.fantasy.tv/video/list/channel/1997872/0/1220191) [18](https://www.fantasy.tv/video/list/channel/1997874/0/1220191) [19](https://www.fantasy.tv/video/list/channel/1997877/0/1220191) [20](https://www.fantasy.tv/video/list/channel/1997881/0/1220191) 
+
 ### 2018/7/18
 
 + [口红](https://www.fantasy.tv/video/list/channel/1996817/0/1220191)
