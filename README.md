@@ -1,5 +1,19 @@
 ## 更新
 
+### 2018/7/20
++ [镇魂]()  
+[37](https://www.fantasy.tv/video/list/channel/2000056/0/1220191) [38](https://www.fantasy.tv/video/list/channel/2000057/0/1220191) [39](https://www.fantasy.tv/video/list/channel/2000058/0/1220191)
++ [救赎之路](https://www.fantasy.tv/video/list/channel/2000452/0/1220191)
++ [四月之恋](https://www.fantasy.tv/video/list/channel/2000448/0/1220191)
++ [8号提案](https://www.fantasy.tv/video/list/channel/1999124/0/1220191)
++ [青春梦里人](https://www.fantasy.tv/video/list/channel/1998784/0/1220191)
++ [十七岁的天空](https://www.fantasy.tv/video/list/channel/1999090/0/1220191)
++ [死后的关怀](https://www.fantasy.tv/video/list/channel/1998765/0/1220191)
++ [蝴蝶君](https://www.fantasy.tv/video/list/channel/1998901/0/1220191)
++ [里约夜未眠](https://www.fantasy.tv/video/list/channel/1998631/0/1220191)
++ [马背上的青春](https://www.fantasy.tv/video/list/channel/1998738/0/1220191)
++ [石墙风暴](https://www.fantasy.tv/video/list/channel/1998760/0/1220191)
+
 ### 2018/7/19
 + [然后呢? 告诉我](https://www.fantasy.tv/video/list/channel/1997907/0/1220191)
 + [坠落.爱的誓约](https://www.fantasy.tv/video/list/channel/1997918/0/1220191)
