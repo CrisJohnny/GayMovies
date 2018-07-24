@@ -1,5 +1,13 @@
 ## 更新
 
+### 2018/7/23
++ [暧昧男子]()  
+[01](https://www.fantasy.tv/video/list/channel/2003475/0/1220191) [02](https://www.fantasy.tv/video/list/channel/2003485/0/1220191) [03](https://www.fantasy.tv/video/list/channel/2003497/0/1220191) [04](https://www.fantasy.tv/video/list/channel/2003510/0/1220191) [05](https://www.fantasy.tv/video/list/channel/2003527/0/1220191) [06](https://www.fantasy.tv/video/list/channel/2003565/0/1220191) [07](https://www.fantasy.tv/video/list/channel/2003590/0/1220191) [08](https://www.fantasy.tv/video/list/channel/2003604/0/1220191) [09](https://www.fantasy.tv/video/list/channel/2003615/0/1220191) [10](https://www.fantasy.tv/video/list/channel/2003624/0/1220191) [11](https://www.fantasy.tv/video/list/channel/2003638/0/1220191) [12](https://www.fantasy.tv/video/list/channel/2003654/0/1220191) [13](https://www.fantasy.tv/video/list/channel/2003663/0/1220191) [14](https://www.fantasy.tv/video/list/channel/2003670/0/1220191) [15](https://www.fantasy.tv/video/list/channel/2003677/0/1220191)
++ [黑人同志故事辑]()  
+[Boo篇](https://www.fantasy.tv/video/list/channel/2003688/0/1220191) [Mark篇](https://www.fantasy.tv/video/list/channel/2003692/0/1220191) [Robert篇](https://www.fantasy.tv/video/list/channel/2003701/0/1220191) [Wes篇](https://www.fantasy.tv/video/list/channel/2003684/0/1220191)
++ [人际关系事务所]()  
+[01](https://www.fantasy.tv/video/list/channel/2003716/0/1220191) [02](https://www.fantasy.tv/video/list/channel/2003728/0/1220191) [03](https://www.fantasy.tv/video/list/channel/2003755/0/1220191) [04](https://www.fantasy.tv/video/list/channel/2003784/0/1220191) [05](https://www.fantasy.tv/video/list/channel/2003807/0/1220191) [06](https://www.fantasy.tv/video/list/channel/2003859/0/1220191) [07](https://www.fantasy.tv/video/list/channel/2003876/0/1220191) [08](https://www.fantasy.tv/video/list/channel/2003890/0/1220191) [09](https://www.fantasy.tv/video/list/channel/2003906/0/1220191) [10](https://www.fantasy.tv/video/list/channel/2003923/0/1220191) [11](https://www.fantasy.tv/video/list/channel/2003954/0/1220191) [12](https://www.fantasy.tv/video/list/channel/2004008/0/1220191) [13](https://www.fantasy.tv/video/list/channel/2004059/0/1220191)
+
 ### 2018/7/22
 + [魔力麦克 01](https://www.fantasy.tv/video/list/channel/2002863/0/1220191)
 + [孽子]()  
