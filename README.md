@@ -1,5 +1,46 @@
 ## 更新
 
+### 2018/7/31
++ [识汝不识丁]()  
+[01](https://www.fantasy.tv/video/list/channel/2006145/0/1220191) [02](https://www.fantasy.tv/video/list/channel/2010785/0/1220191) [03](https://www.fantasy.tv/video/list/channel/2010786/0/1220191) [04](https://www.fantasy.tv/video/list/channel/2006406/0/1220191) [05](https://www.fantasy.tv/video/list/channel/2006435/0/1220191) [06](https://www.fantasy.tv/video/list/channel/2007813/0/1220191) [07](https://www.fantasy.tv/video/list/channel/2009675/0/1220191) [08](https://www.fantasy.tv/video/list/channel/2009756/0/1220191)
++ [我和X先生 第一季]()  
+[01](https://www.fantasy.tv/video/list/channel/2005805/0/1220191) [02](https://www.fantasy.tv/video/list/channel/2005830/0/1220191) [03](https://www.fantasy.tv/video/list/channel/2005835/0/1220191) [04](https://www.fantasy.tv/video/list/channel/2005845/0/1220191)
++ [我和X先生 第二季]()  
+[01](https://www.fantasy.tv/video/list/channel/2005895/0/1220191) [02](https://www.fantasy.tv/video/list/channel/2005907/0/1220191) [03](https://www.fantasy.tv/video/list/channel/2005922/0/1220191) [04](https://www.fantasy.tv/video/list/channel/2005940/0/1220191)
++ [逆袭之爱上情敌]()  
+[01](https://www.fantasy.tv/video/list/channel/2005457/0/1220191) [02](https://www.fantasy.tv/video/list/channel/2005467/0/1220191) [03](https://www.fantasy.tv/video/list/channel/2005476/0/1220191) [04](https://www.fantasy.tv/video/list/channel/2005538/0/1220191) [05](https://www.fantasy.tv/video/list/channel/2005562/0/1220191) [06](https://www.fantasy.tv/video/list/channel/2005579/0/1220191) [07](https://www.fantasy.tv/video/list/channel/2005586/0/1220191) [08](https://www.fantasy.tv/video/list/channel/2005617/0/1220191) [番外](https://www.fantasy.tv/video/list/channel/2005645/0/1220191)
++ [人际关系事务所]()  
+[14](https://www.fantasy.tv/video/list/channel/2004578/0/1220191) [15](https://www.fantasy.tv/video/list/channel/2004603/0/1220191) [16](https://www.fantasy.tv/video/list/channel/2005733/0/1220191) [17](https://www.fantasy.tv/video/list/channel/2004979/0/1220191) [18](https://www.fantasy.tv/video/list/channel/2005057/0/1220191) [19](https://www.fantasy.tv/video/list/channel/2005105/0/1220191) [20](https://www.fantasy.tv/video/list/channel/2005147/0/1220191) [21](https://www.fantasy.tv/video/list/channel/2005175/0/1220191) [22](https://www.fantasy.tv/video/list/channel/2005738/0/1220191) [23](https://www.fantasy.tv/video/list/channel/2005789/0/1220191) [24](https://www.fantasy.tv/video/list/channel/2004560/0/1220191)
+
+### 2018/7/30
++ [成为约翰·马尔科维奇](https://www.fantasy.tv/video/list/channel/2013032/0/1318401)
++ [爱丽丝的失踪](https://www.fantasy.tv/video/list/channel/2013404/0/1318401)
++ [爱是唯一](https://www.fantasy.tv/video/list/channel/2014042/0/1318401)
++ [大叔之爱](https://www.fantasy.tv/video/list/channel/2013910/0/1318401)
++ [第三国度]()  
+[01](https://www.fantasy.tv/video/list/channel/2012536/0/1318401) [02](https://www.fantasy.tv/video/list/channel/2012551/0/1318401)
++ [多情愫，今安在](https://www.fantasy.tv/video/list/channel/2013563/0/1318401)
++ [海上良宵](https://www.fantasy.tv/video/list/channel/2014032/0/1318401)
++ [蝴蝶君](https://www.fantasy.tv/video/list/channel/2014084/0/1318401)
++ [假面](https://www.fantasy.tv/video/list/channel/2013735/0/1318401)
++ [假期](https://www.fantasy.tv/video/list/channel/2014007/0/1318401)
++ [迷失法兰克福](https://www.fantasy.tv/video/list/channel/2012757/0/1318401)
++ [男孩之家](https://www.fantasy.tv/video/list/channel/2014078/0/1318401)
++ [青春若梦](https://www.fantasy.tv/video/list/channel/2013714/0/1318401)
++ [我的冠军男友](https://www.fantasy.tv/video/list/channel/2014137/0/1318401)
++ [校草室友有剧毒]()  
+[01](https://www.fantasy.tv/video/list/channel/2012611/0/1318401) [02](https://www.fantasy.tv/video/list/channel/2012616/0/1318401) [03](https://www.fantasy.tv/video/list/channel/2012622/0/1318401) [04](https://www.fantasy.tv/video/list/channel/2012628/0/1318401) [05](https://www.fantasy.tv/video/list/channel/2012632/0/1318401) [06](https://www.fantasy.tv/video/list/channel/2012637/0/1318401) [07](https://www.fantasy.tv/video/list/channel/2012643/0/1318401) [08](https://www.fantasy.tv/video/list/channel/2012647/0/1318401)
++ [心跳无限次](https://www.fantasy.tv/video/list/channel/2014039/0/1318401)
+
+### 2018/7/29
++ [烟袋斜街10号]()  
+[01](https://www.fantasy.tv/video/list/channel/2012652/0/1318401) [02](https://www.fantasy.tv/video/list/channel/2012685/0/1318401) [03](https://www.fantasy.tv/video/list/channel/2012688/0/1318401) [04](https://www.fantasy.tv/video/list/channel/2012693/0/1318401) [06](https://www.fantasy.tv/video/list/channel/2012698/0/1318401) [07](https://www.fantasy.tv/video/list/channel/2012707/0/1318401) [08](https://www.fantasy.tv/video/list/channel/2012708/0/1318401) [09](https://www.fantasy.tv/video/list/channel/2012711/0/1318401) [10](https://www.fantasy.tv/video/list/channel/2012717/0/1318401) [番外上](https://www.fantasy.tv/video/list/channel/2012729/0/1318401) [番外下](https://www.fantasy.tv/video/list/channel/2012731/0/1318401)
++ [在勾引中学会爱](https://www.fantasy.tv/video/list/channel/2014117/0/1318401)
++ [在勾引中学会爱2](https://www.fantasy.tv/video/list/channel/2012769/0/1318401)
++ [在宇田川町等我喔](https://www.fantasy.tv/video/list/channel/2013487/0/1318401)
++ [镇魂 EP40](https://www.fantasy.tv/video/list/channel/2012793/0/1318401)
++ [重塑马文](https://www.fantasy.tv/video/list/channel/2014096/0/1318401)
+
 ### 2018/7/23
 + [暧昧男子]()  
 [01](https://www.fantasy.tv/video/list/channel/2003475/0/1220191) [02](https://www.fantasy.tv/video/list/channel/2003485/0/1220191) [03](https://www.fantasy.tv/video/list/channel/2003497/0/1220191) [04](https://www.fantasy.tv/video/list/channel/2003510/0/1220191) [05](https://www.fantasy.tv/video/list/channel/2003527/0/1220191) [06](https://www.fantasy.tv/video/list/channel/2003565/0/1220191) [07](https://www.fantasy.tv/video/list/channel/2003590/0/1220191) [08](https://www.fantasy.tv/video/list/channel/2003604/0/1220191) [09](https://www.fantasy.tv/video/list/channel/2003615/0/1220191) [10](https://www.fantasy.tv/video/list/channel/2003624/0/1220191) [11](https://www.fantasy.tv/video/list/channel/2003638/0/1220191) [12](https://www.fantasy.tv/video/list/channel/2003654/0/1220191) [13](https://www.fantasy.tv/video/list/channel/2003663/0/1220191) [14](https://www.fantasy.tv/video/list/channel/2003670/0/1220191) [15](https://www.fantasy.tv/video/list/channel/2003677/0/1220191)
