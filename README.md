@@ -1,5 +1,11 @@
 ## 更新
 
+### 2018/8/01
++ [长期伴侣](https://www.fantasy.tv/video/list/channel/2015496/0/1318401)
++ [生于68 年](https://www.fantasy.tv/video/list/channel/2015461/0/1318401)
++ [人之子](https://www.fantasy.tv/video/list/channel/2015473/0/1318401)
++ [受伤的男人](https://www.fantasy.tv/video/list/channel/2015485/0/1318401)
+
 ### 2018/7/31
 + [识汝不识丁]()  
 [01](https://www.fantasy.tv/video/list/channel/2006145/0/1220191) [02](https://www.fantasy.tv/video/list/channel/2010785/0/1220191) [03](https://www.fantasy.tv/video/list/channel/2010786/0/1220191) [04](https://www.fantasy.tv/video/list/channel/2006406/0/1220191) [05](https://www.fantasy.tv/video/list/channel/2006435/0/1220191) [06](https://www.fantasy.tv/video/list/channel/2007813/0/1220191) [07](https://www.fantasy.tv/video/list/channel/2009675/0/1220191) [08](https://www.fantasy.tv/video/list/channel/2009756/0/1220191)
